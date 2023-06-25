@@ -28,6 +28,8 @@
 
 ![vivaldi_IXeUpp4F4O](https://github.com/frkylmz/internet_kafe/assets/70021191/06b0fd1e-5534-4754-ba6c-1a02567dd571)
 
+![2018469062_Faruk_YILMAZ](https://github.com/frkylmz/internet_kafe/assets/70021191/ba3ef554-1bcf-486e-859e-9a3af21b3f4d)
+
 
 
 
