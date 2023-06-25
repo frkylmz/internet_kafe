@@ -1,3 +1,5 @@
+![2018469062_Faruk_YILMAZ](https://github.com/frkylmz/internet_kafe/assets/70021191/ba3ef554-1bcf-486e-859e-9a3af21b3f4d)
+
 ![vivaldi_9BepDaAGV7](https://github.com/frkylmz/internet_kafe/assets/70021191/611e2c98-5498-4e6d-992c-1314cb021d2e)
 
 ![vivaldi_FdxA4PJwTO](https://github.com/frkylmz/internet_kafe/assets/70021191/61e621f3-38fc-4e3c-8b66-21a0c57c19c2)
@@ -28,7 +30,7 @@
 
 ![vivaldi_IXeUpp4F4O](https://github.com/frkylmz/internet_kafe/assets/70021191/06b0fd1e-5534-4754-ba6c-1a02567dd571)
 
-![2018469062_Faruk_YILMAZ](https://github.com/frkylmz/internet_kafe/assets/70021191/ba3ef554-1bcf-486e-859e-9a3af21b3f4d)
+
 
 
 
